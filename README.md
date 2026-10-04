@@ -5,7 +5,7 @@
 - software engineer with 6+ years of experience
 - more than likely doing the following:
   - spending quality time with family and [my dog Marty](https://radiylon.com/marty)
-  - taking time off to explore and travel somewhere solo
+  - taking time off to travel and explore
   - building small projects to learn and experiment with tech
   - making noise with the piano, ukulele, guitar, and the cajón
   - unwinding with a video game
